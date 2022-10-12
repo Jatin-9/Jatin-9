@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on coding or anything that could bolster my knowledge
      and make me more experienced in technical field. 
 - 📫 Any one can contact me 
-     : +91-7017589042 
+     : +44 07721550289
      :  jatinkandpal0123@gmail.com
      : https://www.linkedin.com/in/jatin-kandpal-a4a020217
 <!---
